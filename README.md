@@ -1,2 +1,2 @@
 # WeedDawg
-Jamaican who kikes to code
+Jamaican who likes to code
